@@ -1,2 +1,0 @@
-# benefitcatchers
-Apply for benefits
